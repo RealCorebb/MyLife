@@ -28,4 +28,7 @@ It happens in a P.E. class, I and my friend laugh, the teacher speeks somethings
 ## Travel to XiaMen (2017.07.27)
 ## Travel to ShaoGuan (2017.09.30)
 ## First day to university (2017.08.XX)
+## First time making and selling products (2018.XX.XX)
 ## First day to work (2021.03.15)
+## Travel to Vietnam (2023.12.XX)
+## First time selling products abroad(2024.10.20)
