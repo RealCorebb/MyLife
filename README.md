@@ -17,6 +17,7 @@ My mom drive me to it by a motor cycle. When the parents leaves, everyone else c
 ## Made a software (actually it is a game exp script) (2008.??.??)
 ## First time I see rain slowly approaching me from the side. (200?.??.??)
 It happens in a P.E. class, I and my friend laugh, the teacher speeks somethings and than screams "Run quickly ahhh!!" when the rain finally above us.
+## Travel to Malaysia and Singapore (2010.01.XX)
 ## First day to junior high school (2011.08.XX)
 ## Play Minecraft (2012.08.13)
 ## Found CoreandFoambb and shot Minecraft videos (2013.11.17)
@@ -31,4 +32,5 @@ It happens in a P.E. class, I and my friend laugh, the teacher speeks somethings
 ## First time making and selling products (2018.XX.XX)
 ## First day to work (2021.03.15)
 ## Travel to Vietnam (2023.12.XX)
-## First time selling products abroad(2024.10.20)
+## First time selling products abroad(2024.10.20)  
+I dreamed of this in about 2 years, finally it happened!
